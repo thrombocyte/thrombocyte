@@ -1,1 +1,1 @@
-Graduate student. Mathematician. Exploring software development. 
+Software. Mathematics. Teaching. 
