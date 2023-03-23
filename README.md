@@ -1,1 +1,1 @@
-Software. Mathematics. Teaching. 
+Mathematician and teacher starting my software journey. 
